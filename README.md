@@ -1,0 +1,5 @@
+- 👋 Hi, My name is Pablo
+- 👀 I’m interested in music and arts
+- 🌱 I’m currently learning how to improve the quality of life
+- 💞️ I’m looking to collaborate on BetterDiscord themes
+- 📫 Reach me on discord @pablo.#2022
